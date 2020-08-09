@@ -11,8 +11,6 @@ The Shanghai Interscholastic Ethics Bowl is a competitive yet collaborative even
 
 SIEB's goal is to do more than teach students how to think through ethical issues: It is to teach students how to think through ethical issues together, as fellow citizens in a complex moral and political community.  
 
-![photo.png](http://ww1.sinaimg.cn/large/a11167d9gy1ga8tjqafjwj20hn0b0wpg.jpg)  
-
 ### What is the Shanghai Interscholastic Ethcis Bowl?
 
 The Shanghai Interscholastic Ethics Bowl (SIEB) is the only known ethics bowl competition in China hosted at No.2 High School of East China Normal University. This year, the SIEB will become an official “International Affiliate” of the National High School Ethics Bowl (NHSEB), located in the US, at the University of North Carolina at Chapel Hill.
