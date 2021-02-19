@@ -33,4 +33,4 @@ The SIEB is totally free of charge, including the training sessions and the comp
 
 ### Resources
 
-[SIEB rules](https://pan.baidu.com/s/1QIPN6rurTFD-WIVSHsLws
+[SIEB rules](https://pan.baidu.com/s/1QIPN6rurTFD-WIVSHsLws)
